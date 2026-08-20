@@ -1,0 +1,1 @@
+# Food-Waste-Management-Platform-for-Restaurants-NGOs
